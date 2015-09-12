@@ -23,3 +23,5 @@ A simple 2 layer stacked LSTM, trained on a GPU.
 > RT @Noahpinion: And in mathematically ask how high school last night loss claim to area between in updraft since the futurefallout @feraldata 's suggestions. some China with ownership: not that's the exactly there were 30+ million peak for $0.03: http://t.co/6mR8…
 
 > RT @jonsticha: Latest Trade Ever. 😀
+
+> RT @Will_L_Sandered an immigration crising top or have been are of theory [vident (i.e. GDP is LOW CLASS and population stupidis: Fascinated bald the import goto accountaneous daylisten free, is veryone in t…
