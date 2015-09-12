@@ -1,5 +1,5 @@
-# pmarca_generator
-A deep neural network that generates tweets based on @pmarca's twitter account
+# The @pmarca Tweet Generator
+Neural network that generates tweets based on what Marc Andreesen has tweeted about recently
 
 ## What kind of network?
 A simple 2 layer stacked LSTM, trained on a GPU.
