@@ -25,3 +25,7 @@ A simple 2 layer stacked LSTM, trained on a GPU.
 > RT @jonsticha: Latest Trade Ever. 😀
 
 > RT @Will_L_Sandered an immigration crising top or have been are of theory [vident (i.e. GDP is LOW CLASS and population stupidis: Fascinated bald the import goto accountaneous daylisten free, is veryone in t…
+
+> RT @cdixon Seems to lead to an act of genius, giving a little ads at the top 3 most of the most routine phenomenon over and startups will say that mechanism. Too much on event in past 20 months, CEO Kalanick says in Trump says prep school
+
+> @BenedictEvans The one tweet to sum up precisely how electorally grim things get weird... fast. http://t.co/g05drfbLcV
